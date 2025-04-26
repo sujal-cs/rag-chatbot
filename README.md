@@ -155,6 +155,8 @@ Made with ❤️ by **Sujal**
 
 > [LinkedIn](https://www.linkedin.com/in/sujal-lokhande-s70/) | [GitHub](https://github.com/sujal-cs) | [X/Twitter](https://x.com/SujalLokhande70) 
 
+> [Youtube Channel](https://www.youtube.com/@SujalLokhande-rj6hf) | [Youtube Video](https://youtu.be/mK9jAPOiq-s)
+
 ---
 
 
